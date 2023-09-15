@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @02Clay90
 - 👀 I’m interested in changing my career
-- 🌱 I’m currently learning python and html languages
+- 🌱 I’m currently learning python and html languages and eant to learn more. im new to GitHub and would like to meet others who can help me learn the rooes
 - 💞️ I’m looking to collaborate on anything and everything
 - 📫 How to reach me at mexewok33@gmail.com
 
